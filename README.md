@@ -1,1 +1,1 @@
-# exercise.1
+Weekly Asssignment # Exercise.1 to Exercise -6
